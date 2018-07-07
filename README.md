@@ -1,0 +1,1 @@
+# gazuainfo.github.io
